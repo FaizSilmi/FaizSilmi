@@ -1,4 +1,4 @@
-## Hi there, I'm Muhammad Faiz Silmli 👋
+## Hi there, I'm Muhammad Faiz Silmi 👋
 
 Here are some ideas to get you started:
 
